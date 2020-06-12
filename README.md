@@ -18,3 +18,10 @@ Il se retourne vers la peluche quand soudain celle-ci se retourne et lui dit :
 Il n'en croit pas ses yeux, *une peluche qui parle impossible?!*, pense-t-il.
 
 *"He ho ! je te parle !"*, dit la peluche.
+
+*"Allez hop, habille-toi"* dit-il en lui jetant un pantalon et un t-shirt, *"on a encore pas mal de chemin à faire"*.
+Les deux nouveaux acolytes entamèrent leur marche dans l'étendue aride, marchant vers un but inconnu. 
+
+###**_FIN_**
+
+Il était vraiment pourri ce film.
