@@ -10,3 +10,11 @@ Notre héros ressemblait comme deux goutes d'eau à [cela](https://fr.wikipedia.
 *Soudain... ses paupières se ferment, lourdes... *
 A son reveil, il est nu... au milieu du désert... avec comme unique compagnie cette [peluche](https://cdn1.tedsby.com/tb/large/storage/8/1/6/81654/cute-handmade-teddy-bear-winnie-pooh.jpg)
 Mais que s'est-il passé?
+
+Il se retourne vers la peluche quand soudain celle-ci se retourne et lui dit : 
+
+*"Bien dormi ?"*
+
+Il n'en croit pas ses yeux, *une peluche qui parle impossible?!*, pense-t-il.
+
+*"He ho ! je te parle !"*, dit la peluche.
