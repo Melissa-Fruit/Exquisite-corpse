@@ -6,3 +6,7 @@ Es-ce un rêve **ou..** la [realite ](https://fr.wikipedia.org/wiki/R%C3%A9alit%
 Il était face à un ***monstre*** sans nom, de part sa **taille gargantuesque** et sa *forme informe*!
 Son visage si l'on osait appeller cela un visage, n'inspirait que la crainte.
 Notre héros ressemblait comme deux goutes d'eau à [cela](https://fr.wikipedia.org/wiki/Le_Cri#/media/Fichier:Edvard_Munch,_1893,_The_Scream,_oil,_tempera_and_pastel_on_cardboard,_91_x_73_cm,_National_Gallery_of_Norway.jpg) !
+
+*Soudain... ses paupières se ferment, lourdes... *
+A son reveil, il est nu... au milieu du désert... avec comme unique compagnie cette [peluche](https://cdn1.tedsby.com/tb/large/storage/8/1/6/81654/cute-handmade-teddy-bear-winnie-pooh.jpg)
+Mais que s'est-il passé?
